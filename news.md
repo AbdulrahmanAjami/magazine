@@ -1,3 +1,4 @@
-# Tech News - final-A
+# Tech News - version B
+# Tech News - Version A (master edit)
 
 
