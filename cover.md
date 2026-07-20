@@ -1,1 +1,1 @@
-MZN Tech Magazine
+abood is the beast
